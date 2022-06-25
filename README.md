@@ -1,4 +1,4 @@
-Discord: OV'22#6969
+Discord: Lyiii#6969
 Beginner discord bot developer
 
 <!---
